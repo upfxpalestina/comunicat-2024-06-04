@@ -10,6 +10,15 @@ Observem que, malgrat el llenguatge problemàtic que utilitza el Consell de Gove
 
 Després d'aquesta reacció vergonyosa i covarda per part de l'administració universitària, els grups i organitzacions de la UPF sóm clars: això no és més que el principi. No acceptarem que la nostra universitat, a través dels seus acords i col·laboracions amb institucions, empreses israelianes i totes les corporacions que són complices, ens impliqui directament en la despossessió del poble palestí i els horrors televisats que es desenvolupen a Gaza. Les nostres exigències són simples i no impliquen grans mesures. Per contra, impliquen el cessament immediat de l'acció, l'acció de donar suport a les parts cómplices i a aquelles que duen a terme  el genocidi. No ens aturarem fins que la UPF deixi de ser còmplice de la injustícia imperant, ni fins que Palestina sigui lliure.
 
+*AEP Ciutadella*<br>
+*Assemblea Oberta*<br>
+*Assemblea Ciutadella*<br>
+*El col·lectiu UPF in Solidarity with Palestine*<br>
+*Front d'Estudiants*<br>
+*Red Universitaria por Palestina a la UPF*<br>
+*SEPC Ciutadella*<br>
+*Universitats amb Palestina*<br>
+
 ---
 
 **Statement after the UPF Consell de Govern**
@@ -23,3 +32,13 @@ We have demanded, and will continue to demand, explicit recognition of the struc
 We note that, despite the problematic language used by the Governing Council of UPF, referring exclusively to suspending ties with Israeli universities that "either explicitly or through specific programs or initiatives, support the activities of the Israeli army in the Gaza Strip," now that it has adopted this position the university must immediately break ties with the five Israeli universities it currently has agreements and/or collaborations with: University of Tel-Aviv, la Hebrew University of Jerusalem, la Haifa University, i la Reichman University, and Bar Ilan University. All five of these institutions unambiguously play an active part in Israeli apartheid and the IDF's slaughter in Gaza. Still, we contend that the statement issued today fails colossally to meet the urgency of this moment in which the world is witnessing a rapidly escalating genocide after76 years of apartheid and illegal military occupation.e
 
 After this shameful and cowardly reaction on the part of the university administration, the groups and organizations of the UPF are clear: this is nothing more than the beginning. We will not accept our university, through its agreements and collaborations with Israeli institutions, enterprises, and complicit companies, directly implicating us in the dispossession of the Palestinian people and the televised horrors unfolding in Gaza. Our demands are straightforward and unextraordinary - they do not entail grand measures. On the contrary, they entail the immediate ceasing of action - the action of supporting aparthied and genocide. We will not stop until UPF is no longer complicit in mass injustice, nor until Palestine is free. 
+
+*AEP Ciutadella*<br>
+*Assemblea Oberta*<br>
+*Assemblea Ciutadella*<br>
+*El col·lectiu UPF in Solidarity with Palestine*<br>
+*Front d'Estudiants*<br>
+*Red Universitaria por Palestina a la UPF*<br>
+*SEPC Ciutadella*<br>
+*Universitats amb Palestina*<br>
+
