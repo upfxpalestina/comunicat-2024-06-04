@@ -1,4 +1,4 @@
-**Comunicat després de CdG**
+**Comunicat després del Consell de Govern de la UPF**
 
 Avui, 4 de juny de 2024, el Consell de Govern de la Universitat Pompeu Fabra ha tingut l'oportunitat de posicionar-se contra el genocidi i l'apartheid i a favor de la llibertat palestina, en línia amb les posicions adoptades recentment per la UB i la UAB. Fer-ho exigia trencar la cadena de complicitats amb els crims de l'Estat d'Israel que travessen les relacions de la UPF amb diverses universitats i empreses israelianes. En canvi, el Consell de Govern ha aprovat una moció feble, deliberadament superficial i sense compromisos substancials o materials.
 
@@ -12,7 +12,7 @@ Després d'aquesta reacció vergonyosa i covarda per part de l'administració un
 
 ---
 
-**Statement after the CdG**
+**Statement after the UPF Consell de Govern**
 
 Today, June 4, 2024, the Governing Council of Universitat Pompeu Fabra had the opportunity to position itself against genocide and aparheid and in favor of Palestinian freedom, in line with the positions recently taken by the UB and the UAB. Doing so requires breaking the chain of complicity with the State of Israel’s crimes, which runs through UPF’s collaborations with Israeli universities and enterprises. Instead, the Governing Council has approved a weak motion, deliberately superficial and with insufficient substantial or material commitments. 
 
